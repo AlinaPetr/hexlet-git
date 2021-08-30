@@ -1,1 +1,0 @@
-Gaskell Curry
